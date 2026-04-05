@@ -1,1 +1,1 @@
-I wanna make a million dollars
+Goal: Be a knowledgeable fullstack developer & later on a bad ass pentester.
